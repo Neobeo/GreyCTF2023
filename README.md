@@ -9,14 +9,14 @@ Fast-forward to the weekend of 15th-16th July, and the finals were up and runnin
 We finished in third place overall, and took home some S$2400 in prizes, plus a lot of swag!
 
 Final Scoreboard | Prize Ceremony
-- | - 
+--- | ---
 ![](scoreboard.png) | ![](third_place.jpg)
 
 
 But of course the real prize were the friends we made along the way.
 
 Food | More food
-- | -
+--- | ---
 ![](food1.jpg) | ![](food2.jpg)
 
 ![](everyone.jpg)
